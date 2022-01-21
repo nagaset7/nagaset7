@@ -1,5 +1,5 @@
 - Hi,  👀 I'm a Japanese artist.
--　My NFT here.
+- Here are my NFTs.
 - https://opensea.io/collection/amamiisland
 
 <!---
